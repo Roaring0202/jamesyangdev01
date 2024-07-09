@@ -15,7 +15,7 @@
 
 ⚡ A quick learner, hardworking, committed team player, proactive self-starter, resourceful manager, and capable of handling stressful conditions.
 
-👨‍🎓 MS in Computer Science
+👨‍🎓 BS in Computer Science
 
 
 
